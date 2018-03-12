@@ -9,3 +9,5 @@
 Thank's To https://github.com/huttarichard/instagram-private-api For API
 
 Hai, follback|follback yah 😊|hi, follback 😆|follback ya kak 😊|jgn lupa follback ☺|ditunggu follbacknya🙏|follback aku kak 😸|hi,, follow balik yah 🙏|follow balik yah 😊
+
+Hai, follback|follback yah :)|hi, follback (:|follback ya kak |jgn lupa follback |ditunggu follbacknya|follback aku kak |hi,, follow balik yah |follow balik yah 
